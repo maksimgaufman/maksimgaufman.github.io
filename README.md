@@ -1,1 +1,0 @@
-# maksimgaufman.github.io
